@@ -1,1 +1,0 @@
-# Transla-oqori6u
